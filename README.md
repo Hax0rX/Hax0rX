@@ -1,5 +1,4 @@
 ![image](https://i.postimg.cc/VLPL58SQ/Hax0rX.png)
-<p align="center">Member of my Group: <br> [@LineEngine](https://arsch.de) [@ManuelNeuer05](https://arsch.de) [@SaidoDev1](https://arsch.de)</p>
 
 ---
 
